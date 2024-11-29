@@ -97,4 +97,4 @@ Desarrollado por el equipo *[SweetVibe]*
 
 ---
 
-¡Gracias por visitar SweetVibe! 🍰✨
+¡Gracias por visitar SweetVibe! 🍰✨.
