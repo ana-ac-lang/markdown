@@ -1,2 +1,1 @@
-(https://josnaquichenaquich.wixsite.com/sweetvibe)
-(https://josnaquichenaquich.wixsite.com/sweetvibe) 
+https://anabarbaranmolina6.wixsite.com/my-site-1 
